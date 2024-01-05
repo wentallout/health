@@ -1,14 +1,80 @@
-## Pubes
+## 0 calorie
+Water
+Apple cider vinegar
+Herbal tea
+Green tea
+Black tea
+Coffee
+Stevia
 
-Should You Shave Your Pubes? - https://www.youtube.com/watch?v=46LU6AxB1go
+## 0 carbs
+Lemon water (teaspoon in quarter)
+Infused water (slices of lemon, cucumber)
+Meat: fish, chicken, lamb
+Extra virgin olive oil
+Coconut oil
+MCT
+Tallow
+Lard
+Butter
+Ghee
+Mayo (homemade with avocado or walnut oil) 
 
-TLDR: keep it natural, if possible
+## Low carb
+Eggs
+Cheese
+Avocado
+Macadamias
+Pecans
+Walnuts
+Flax seeds
+Chia seed
+Hemp seeds 
+Pumpkin seeds
+Swiss chard
+Kale
+Lettuce (boston, arugula, romaine, red, green) 
+Spinach
+Olives
+Spaghetti squash
+Broccoli
+Brussels sprouts
+Bell pepper
+Cabbage (also fermented) 
+Cauliflower
+Celery
+Cucumber
+Eggplant
+Mushrooms
+Okra
+Zucchini
+Tomato
 
-## Masturbation
-
-"fapping" can increase your dopamine and serotonin. however doing it too frequently makes brain be like: "This is boring".
-
-- Benefits: improve sleep, reduce stress and pain, improve immune system, reduce prostate cancer risk.
+## Quantity dependent carb amounts
+Coconut cream
+Heavy cream
+Half and half
+Milk
+Mustard
+Ketchup
+Peanuts
+Cashews
+Nutritional yeast
+Garlic
+Basil
+Cilantro
+Tarragon
+Dill
+Parsley
+Sage
+Rosemary
+Thyme
+Mustard seeds
+Peppercorns
+Cinnamon
+Curry
+Cardamom
+Glucomannan (= conjac root)
 
 
 
